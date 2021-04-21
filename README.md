@@ -4,5 +4,5 @@ NRCan employee outside of Ottawa? In need of a private repo? Let's connect on Gi
 
 Send us an email.
 
-Eric Godwin <eric.goodwin@canada.ca><br>
+Eric Goodwin <eric.goodwin@canada.ca><br>
 Mathieu Charron <mathieu.charron@canada.ca> (backup)
